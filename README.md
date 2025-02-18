@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TaraDixonDBS
 - 👀 I’m interested in hooarding craft materials and collecting "projects"
 - 🌱 I’m currently learning lino printing.
-- 💞️ I’m looking to collaborate on redesigning letters used in the Barring decison-making process in my organisation.
+- 💞️ I’m looking to collaborate on redesigning letters used in a decison-making process in my organisation.
 - 📫 How to reach me: On here, or via my email.
 - 😄 Pronouns: she / her
 - ⚡ Fun fact: To be determined
